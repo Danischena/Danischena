@@ -1,5 +1,6 @@
 ### Hi there 👋
 
+No meu tempo livre gosto de jogar (e assistir) futebol, sair para jantar, assistir filmes e séries.
 <!--
 **Danischena/Danischena** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
